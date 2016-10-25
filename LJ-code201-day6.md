@@ -1,0 +1,4 @@
+ LJ Code 201 - Day 6
+
+ So due to some unforeseen circumstances, I wasn't able to make it to class yesterday, so I don't have much to say about that. I wish I would have been able to make, because I was just really confused with this current project. I read the chapters and thought I understood the material, but I guess I'm just missing the context for it all, and how everything connects. I tried to do as much as I understood, but Im disappointed in having to turn in something like this. I was going to use slack, but I feel like I have a hard enough time trying to explain myself in person, I think I would've confused myself more just by reading responses.
+ I am excited/nervous about this week. I can definitely tell that this week is going to be much more difficult. Hopefully I can still salvage the beginning of this week.
